@@ -1,2 +1,2 @@
 
-https://z4fang.github.io/Lab2/
+https://z4fang.github.io/Journal/
